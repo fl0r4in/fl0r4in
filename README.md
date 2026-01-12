@@ -1,16 +1,16 @@
-## Hi there 👋
+　　　　　　　　　　　　　　　　　　![](https://file.garden/aASWqxm2KRQR_hXJ/blegh.png "cr LuvelyPlum twt")
 
-<!--
-**fl0r4in/fl0r4in** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+____
 
-Here are some ideas to get you started:
+　　　　　　**Rowan**　ノ　*Florain*　ノ　*Sword*　　　　　　18 y.o.　　　　　　he　ノ　him　　　　　　**RUS**　ノ　*ENG*
+____
+　　　　　　　　　I'm usually with friends, if i'm not - **i'm offtab**　　　　If i don't notice your message that's the **reason** why
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+　　　　　　　　　　　　　*Interact With Extreme Caution　　　　　!Do Not Touch Unless Friends!　　　Whisper To Int*　
+
+　　　　　　　　　　　　　　　　　　Fandoms　-　　**Phighting!**　　　*Orison*　　　*Combat Initiation*
+____
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　fl0r4in on most socials ! !
+____
+                              
+　　　　　　　　　　　　　　　　　　![](https://file.garden/aASWqxm2KRQR_hXJ/aw%20.png "cr yay7937 twt")
